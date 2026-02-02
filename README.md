@@ -11,4 +11,5 @@ Here you’ll find:
 I enjoy turning real-world problems into working models and improving them step by step.
 
 📫 beyzayigit017@email.com  
-🔗 linkedin.com/in/beyzayigitt
+🔗 [LinkedIn](https://www.linkedin.com/in/beyzayigitt)
+
